@@ -1,4 +1,4 @@
-# Chapter 2: First Dungeon
+# The Last Beta Tester - Chapter 2: First Dungeon
 
 After breakfast—another sandwich and coffee to stretch my meager budget—I headed toward what Misha had called the starting dungeon. My stomach felt better, but my wallet definitely didn't.
 
